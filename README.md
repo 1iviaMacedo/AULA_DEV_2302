@@ -5,4 +5,4 @@
 ![image](https://user-images.githubusercontent.com/125596597/220899859-6492114e-d6d6-41c4-81e6-3b532a8b9497.png)
 
 
-![image](kawaii-cute-fofo-anime-gif (13).gif)
+![image](kawaii-cute-fofo-anime-gif (13).PNG)
