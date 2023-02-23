@@ -9,4 +9,4 @@
 
 ![image](kawaii-cute-fofo-anime-gif)
 
-![image](IMG/Imagem 1.jfif)
+![image](IMGImagem 1.jfif)
